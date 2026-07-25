@@ -176,8 +176,8 @@ Through this project, you can learn:
 **Anjali Jaiswal**
 
 - 💼 GitHub: https://github.com/anjali22334455
-- 💼 LinkedIn: *Add your LinkedIn profile link here*
-- 📧 Email: *Add your email address here*
+- 💼 LinkedIn: https://www.linkedin.com/in/anjali-jaiswal-438a1328b/)
+- 📧 Email: aj4802328@gmail.com
 
 ---
 
